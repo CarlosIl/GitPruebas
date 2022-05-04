@@ -1,1 +1,0 @@
-Autor: Carlos Ildefonso García Gil
